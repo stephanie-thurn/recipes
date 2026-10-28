@@ -10,3 +10,6 @@
 - cumin to taste
 - coriander to taste
 
+## Instructions
+- cut the tomato in small bits
+- press the avocado
