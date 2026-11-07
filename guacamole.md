@@ -11,5 +11,4 @@
 - coriander to taste
 
 ## Instructions
-- cut the tomato in small bits
-- press the avocado
+- put one avocado into a bowl.
