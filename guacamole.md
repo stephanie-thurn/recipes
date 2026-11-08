@@ -11,4 +11,4 @@
 - coriander to taste
 
 ## Instructions
-- put one avocado into a bowl
+- peel the avocados
