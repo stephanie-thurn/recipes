@@ -12,3 +12,4 @@
 
 ## Instructions
 - press the lemon
+- peel the avocados
